@@ -1,2 +1,0 @@
-# jhaprakash.github.io
-Blogs
